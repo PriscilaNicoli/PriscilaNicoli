@@ -13,7 +13,7 @@ Sou estudante de **Ciência da Computação**, apaixonada por tecnologia, progra
 - Um espaço para aprender e compartilhar conhecimento.
 
 📫 **Vamos nos conectar?**  
-- [LinkedIn](www.linkedin.com/in/priscilanicoli)  
+- [LinkedIn](https://www.linkedin.com/in/priscilanicoli)  
 - Email: **priscilanicoli666@gmail.com**
 
 ⚡ **Curiosidades:**  
